@@ -1,4 +1,6 @@
 ### Hi there 👋
+### 📫 How to reach me: [LinkedIn](https://www.linkedin.com/in/shorya-mehra-b691091ba/).
+
 
 <!--
 **shoryamehra24/shoryamehra24** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
