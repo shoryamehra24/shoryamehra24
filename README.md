@@ -1,5 +1,5 @@
 ### Hi there 👋
-### 📫 How to reach me: [LinkedIn](https://www.linkedin.com/in/shorya-mehra-b691091ba/).
+### 📫 How to reach me: [LinkedIn](https://www.linkedin.com/in/shorya-mehra-b691091ba/)
 
 
 <!--
